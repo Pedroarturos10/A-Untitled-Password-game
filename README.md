@@ -1,2 +1,3 @@
 # A-Untitled-Password-game
-U can Copy This game
+DO NOT INSTALL, THIS SHIT CONTAINS VIRUS
+IF YOU WANT TO TEST IT, GO TO: A untitled Password Game (FREE).3
